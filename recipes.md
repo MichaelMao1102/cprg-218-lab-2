@@ -1,4 +1,4 @@
-# My Recipe Book
+# My Recipe Book - Qinghua
 
 ## Contents
 - [Appetizers](#appetizers)
