@@ -113,3 +113,27 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Classic Tiramisu
+
+Ingredients:
+
+- 6 large Egg yolks
+- 3/4 cup Granulated sugar
+- 1 1/4 cups Mascarpone cheese
+- 1 3/4 cups Heavy cream
+- 1 teaspoon Vanilla extract
+- 1 1/2 cups, cooled Strong brewed coffee
+- 2 tablespoons (optional) Rum or Marsala wine
+- 24 to 30 Ladyfingers
+- for dusting Cocoa powder
+
+Instructions:
+
+1. Prepare Egg Mixture: In a medium bowl, whisk together the egg yolks and sugar until thick and pale. Place the bowl over a pot of simmering water (double boiler) and whisk continuously for about 10 minutes until the mixture becomes thicker. Remove from heat and let cool slightly.
+2. Add Mascarpone: Whisk the mascarpone cheese into the egg mixture until smooth.
+3. Whip Cream: In a separate bowl, beat the heavy cream and vanilla extract until stiff peaks form. Gently fold the whipped cream into the mascarpone mixture.
+4. Prepare Coffee Mixture: In a shallow dish, combine the cooled coffee and rum or Marsala wine, if using.
+5. Dip Ladyfingers: Quickly dip each ladyfinger into the coffee mixture, ensuring they are moist but not soggy. Line the bottom of a 9x13-inch dish with a layer of dipped ladyfingers.
+6. Layer Cream Mixture: Spread half of the mascarpone mixture over the ladyfingers. Repeat with another layer of dipped ladyfingers and the remaining mascarpone mixture.
+7. Chill and Serve: Cover and refrigerate for at least 4 hours, or overnight for best results. Dust with cocoa powder before serving.
